@@ -14,6 +14,8 @@
  I have ASD, schizophernia, PTSD, and other mental illnesses. I also exeperince deep kinship with characters and often potray myself as them. Very deep, suspected system deep. IDK!
 
  I often need tone tags and can use them as well. Sometimes I get nonverbal and shut down.
+
+ Doubles are really triggering for me and I become hostile. Please IWEC/DNI.
  
 </details>
 </div>
