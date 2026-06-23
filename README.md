@@ -9,7 +9,7 @@
 -
 [pronouns](https://en.pronouns.page/@rylands)
 -
-[strawpage](https://voughts.straw.page)
+[strawpage](https://rylandgraced.straw.page)
 -
 </div>
 <div align="center">
