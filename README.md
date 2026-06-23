@@ -4,6 +4,15 @@
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Press+Start+2P&pause=1000&color=F7F7F7&center=true&width=435&lines=%3E%2F%2FPILOT+DETECTED;WELCOME%2C+Ryland+Grace!" alt="Typing SVG" /></a></p>
 
 <div align="center">
+
+[新book](https://rylands.atabook.org/)
+-
+[pronouns](https://en.pronouns.page/@rylands)
+-
+[strawpage](https://voughts.straw.page)
+-
+</div>
+<div align="center">
 <details><summary>GRACE data :</summary>
   Hello, My name is Ryland or any other nicknames you know me by! I'm a really chill guy who likes C+H.
   
